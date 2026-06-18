@@ -1,6 +1,6 @@
 # Preface
 
-- **更多PDF电子书下载不求人，看这篇文章就够了→**[PDF下载](https://www.chendianrong.com/pdf#g)  https://www.chendianrong.com/pdf#g
+- **更多PDF电子书下载不求人，看这篇文章就够了→**[寻书帮](https://www.chendianrong.com/)
 
 > 如有侵权，请联系删除！
 
